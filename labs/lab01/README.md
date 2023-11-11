@@ -6,7 +6,7 @@
 - 
 
 **Ссылка на защиту (YouTube)**
-- *https://youtu.be/Lv0Ro_-Re8g*
+- *https://youtu.be/kfZbF5D_ioE*
 
 **Ссылка на защиту (Rutube)**
-- *https://rutube.ru/video/private/5cdd81ae32259071d1de88a54de70675/?p=O6rh0PWPnyMFaJNDntJigg*
+- *https://rutube.ru/video/private/9cdc75e88104948bf5db5f2614bcaa46/?p=eJaI5AW6ygNgWuMu0QDusw*
