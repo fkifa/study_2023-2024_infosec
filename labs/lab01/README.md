@@ -3,7 +3,8 @@
 - 2 часть: *https://youtu.be/o1rm1NvUJzQ*
 
 **Ссылки на выполнение (Rutube)**
-- 
+- 1 часть: *https://rutube.ru/video/private/29fc3007241d49da5b73518f3bba2a97/?p=M5nxB-atpE0jbYUajec-rA*
+- 2 часть: *https://rutube.ru/video/private/3174c62782390230f8741790f018bfee/?p=lXsMxpuEmXbZy7sI-UTQFg*
 
 **Ссылка на защиту (YouTube)**
 - *https://youtu.be/kfZbF5D_ioE*
